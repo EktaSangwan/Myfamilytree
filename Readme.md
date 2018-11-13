@@ -1,1 +1,0 @@
-This project is to describe my family history. It shows my ancestors and resemble a tree in shape. 
